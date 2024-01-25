@@ -1,4 +1,4 @@
-![image](https://github.com/degutting/degutting/assets/142726008/ae8148f2-524a-4cdc-ab9e-ac0f1dd3099f)
+![image](https://github.com/degutting/degutting/assets/142726008/35712ef1-1f23-459d-ad92-da23fb8ae899)
 
 
 > [!CAUTIOn]
