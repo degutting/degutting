@@ -1,2 +1,3 @@
 i love my gf .
-![image](https://github.com/ithaqva/degutting/assets/142726008/f6b41b94-d9b1-4b71-a821-77b252370e52)
+![image](https://github.com/ithaqva/ithaqva/assets/142726008/f5669ba8-0fff-4114-a758-899ce858984a)
+
